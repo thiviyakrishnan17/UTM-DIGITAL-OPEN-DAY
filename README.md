@@ -29,7 +29,6 @@ Overall, it was a meaningful learning experience that enhanced my understanding 
 ![1767371911591](https://github.com/user-attachments/assets/87f90619-356d-4264-a656-29ef6e49cc0a)
 ![1767371912569](https://github.com/user-attachments/assets/5ff900fe-a608-4315-8e24-a98b7901614c)
 ![1767371913691](https://github.com/user-attachments/assets/a60cc158-4d9e-4403-9f5e-d050b7836cce)
-![1767371909074](https://github.com/user-attachments/assets/724063bd-f9f4-4a7e-aa87-e184032be443)
 ![1767371912187](https://github.com/user-attachments/assets/a03e6efa-b8f2-4d6b-bb7a-9609926e7d64)
 
 
